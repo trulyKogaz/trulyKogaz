@@ -28,6 +28,9 @@ Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you unde
   <p align="center">
  Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku. i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. i also ship todomomo and bakuocha, izkuocha BECAUSE LIKE yuh i like those staright ships im not a hater. But ill hate on ships to idc if u think their cute ill absolutely hate on them any ship for example satosugu i hate ok honest i hate it sm close friends cant be close anymore same with bakudeku yes i ship it but it comes to a point when u over do it so nty.
 
+<p align="center">
+Games : guys guys i play enstars ok i play on eng and jp i js have more cards on jp bc im more active on the jp verison than eng I PLAY roblox ok ? ? i play adopt me yes jeje MY PETS ARE NOT GOOD DONT FLAME ME PLS SPEED. guys wait ok so u could say im a koga p on jp YOU COULD SAY i want to be rinne p on eng but im broke please help. IM TRYIN TO GO PRO ON ENSTARS OK GUYS IM NOT THAT BEAST MODE ! koga is princess KOGA IS PRINCESS AND JUN IS OTHR PRINCEESS AND RINNE IS MY QUEEN. i hope ibara blows up ok HE MADE ME SPEND MONEY ON ONE OF HIS CARDS I HOPE HE BLOWS UP ok jejeej guess what come up to me if u know enstars pls guys i need more friedn pls i need this speed.
+  
   <p align="center">
   Socials : insta: rinn3v  Discord: rinn3v lmk when you add me on those js so ik ig
 <p align="center">
