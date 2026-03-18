@@ -23,7 +23,7 @@ A litte info js so you know is i can be toxic at times and say mean things if it
 
 
 <p align="center">
-Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you under or over js dont be weird unless you let me know its a joke or somthin !! , weird shippers !, weird mha fans , dark ships, sexual humor like i under stand if its a joke but dont overuse it bc its super weird and gross. you yaoi readers like pls gtfo yall disgusting and gross idc if you find any good ones or wtv fuck out my face.
+Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you under or over js dont be weird unless you let me know its a joke or somthin !! , weird shippers !, weird mha fans , dark ships, sexual humor like i under stand if its a joke but dont overuse it bc its super weird and gross. Some yaoi likers i dont hate on all of u guys some of u guys are honestly chill but just dont mention yaoi unless ik for a while bc then i wont care!
 
   <p align="center">
  Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me.Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. i also ship ichihime, ichiruika, ishihime,renji x rukia because boii they fire like ik ichirukia and ishihime arent canon but guys cmon NOW PLEASE dont flame me ok. Guys adokoga peak right here ok? and then me x yuzuru bc im the goat. But ill hate on ships to idc if u think their cute ill absolutely hate on them any ship its not that i genuinely hate its js when ppl over do it and say their canon when they literally arent.
