@@ -32,7 +32,7 @@ Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you unde
 Games / fandoms : guys guys i play enstars ok i play on eng and jp i js have more cards on jp bc im more active on the jp verison than eng I PLAY roblox ok ? ? i play adopt me yes jeje MY PETS ARE NOT GOOD DONT FLAME ME PLS SPEED. guys wait ok so u could say im a koga p on jp YOU COULD SAY i want to be rinne p on eng but im broke please help. IM TRYIN TO GO PRO ON ENSTARS OK GUYS IM NOT THAT BEAST MODE ! koga is princess KOGA IS PRINCESS AND JUN IS OTHR PRINCEESS AND RINNE IS MY QUEEN. i hope ibara blows up ok HE MADE ME SPEND MONEY ON ONE OF HIS CARDS I HOPE HE BLOWS UP ok jejeej guess what come up to me if u know enstars pls guys i need more friedn pls i need this speed. Im watching bleach atm becuase its absolute peak im thinking of watching any orhter animes. I've watched naruto a long time ago so i dont really remember stuff heeh. Jjk any etc etc. Bleach and enstars are my pride ok OK i'll never my bebehs they are my bebeh ok? ok. DO NOT RUIN BLEACH FOR ME BC OF THOSE SHIPS OK i dont hate on the ships but pls stop ok ichigo is my princeness yk ifyk yk. 
   
   <p align="center">
-  Socials : insta: rinn3v  Discord: rinn3v lmk when you add me on those js so ik ig ADD ME BRO I NEED FRIENDS PLS SPEED I NEED THIS OK? IM NICE OK PLS
+  Socials : insta: rinn3v  Discord: trulykogaz lmk when you add me on those js so ik ig ADD ME BRO I NEED FRIENDS PLS SPEED I NEED THIS OK? IM NICE OK PLS
 <p align="center">
 <img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/0aa02df6-f31d-423b-ad99-4046b65ae777" />
 
