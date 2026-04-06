@@ -24,9 +24,9 @@ but basic dni guys yk how it is also if ur under 13 and int with dont say weird 
 Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see me in obey me cos I WS FORCED OK I DON TPLAY OBEY ME!! but yk the characters.. heh. dada
   <p align="center">
   Socials : insta: trulyuryuz  Discord: trulykogaz you can feel free to add me js whisper me dont be shy i nice..
+  <p align="center">
+<img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/d91430d0-ccdb-4399-8d2b-8926d456503d" />
 <p align="center">
 <img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> <img width="316" height="450" alt="image" src="https://github.com/user-attachments/assets/df35827c-2738-4afd-ba4e-843e3dc87817" />
-<p align="center">
+  <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/3e679288-333f-4bfc-94d8-42e97af020cb" />
-
-
