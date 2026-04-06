@@ -27,6 +27,8 @@ Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see m
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/d91430d0-ccdb-4399-8d2b-8926d456503d" />
 <p align="center">
-<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> <img width="316" height="450" alt="image" src="https://github.com/user-attachments/assets/df35827c-2738-4afd-ba4e-843e3dc87817" />
+<img width="360" height="524" alt="image" src="https://github.com/user-attachments/assets/c1ffc454-9ad4-425c-bbad-338ae6f9e2df" />
+<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> <img width="316" height="450" alt="image" src="https://github.com/user-attachments/assets/df35827c-2738-4afd-ba4e-843e3dc87817" /><img width="613" height="640" alt="image" src="https://github.com/user-attachments/assets/bbc0c691-a882-4d1b-9a3f-f66c44c6f34f" />
+
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/3e679288-333f-4bfc-94d8-42e97af020cb" />
