@@ -7,7 +7,7 @@
 CREDIT TO MOYA FOR MAKE IT OR ME
 
 <p align="center">
-Hispanic.
+Hispanic jaja
 
 <p align="center">
 whisper or js int iwth me
