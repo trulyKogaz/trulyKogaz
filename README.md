@@ -25,6 +25,7 @@ Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see m
   <p align="center">
   Socials : insta: trulyuryuz  Discord: trulykogaz you can feel free to add me js whisper me dont be shy i nice..
 <p align="center">
-<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" />
+<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> <img width="316" height="450" alt="image" src="https://github.com/user-attachments/assets/df35827c-2738-4afd-ba4e-843e3dc87817" />
+
 
 
