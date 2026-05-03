@@ -27,6 +27,6 @@ Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see m
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/d91430d0-ccdb-4399-8d2b-8926d456503d" />
 <p align="center">
-<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> <img width="316" height="450" alt="image" src="https://github.com/user-attachments/assets/60f511bc-9221-432c-a2b0-8a99927ea7ec" />
+<img width="310" height="450" alt="image" src="https://github.com/user-attachments/assets/8f0d3219-edd9-411d-b616-b4aa81d61ec5" /> 
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/3e679288-333f-4bfc-94d8-42e97af020cb" />
