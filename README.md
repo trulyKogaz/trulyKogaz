@@ -13,7 +13,8 @@ Hispanic jaja
 whisper or js int iwth me
 
 <p align="center">
-  c+h is alright dnc or inspo off me 
+  c+h is chill so feel free.
+  dnc or inspo off me 
 <p align="center">
 lwk gonna rework the info i had here might take some time ig. If you want u can add my discord js lmk before hand idm <3
 
