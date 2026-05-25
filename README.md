@@ -15,7 +15,7 @@ whisper or js int iwth me
 <p align="center">
   c+h is alright dnc or inspo off me 
 <p align="center">
-lwk gonna rework the info i had here might take some time ig 
+lwk gonna rework the info i had here might take some time ig. If you want u can add my discord js lmk before hand idm <3
 
 <p align="center">
 but basic dni guys yk how it is also if ur under 13 and int with dont say weird shit same thing if ur over 19 dont say weird shit without sayign its a joke i can take jokes BUT ATLEAST TELL ME IT IS!
