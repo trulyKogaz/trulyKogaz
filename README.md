@@ -16,10 +16,10 @@ whisper or js int iwth me
   c+h is chill so feel free.
   
   <p align="center">
-  dnc or inspo off me
+  dnc or inspo off me thas js butt like ok 
   
    <p align="center">
-   Spirit , Justin Law kin
+   Spirit , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?.
       
 <p align="center">
 lwk gonna rework the info i had here might take some time ig. If you want u can add my discord js lmk before hand idm <3
