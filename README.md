@@ -19,7 +19,7 @@ whisper or js int iwth me
   dnc or inspo off me thas js butt like ok 
   
    <p align="center">
-   Spirit Albarn , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?.
+   Spirit Albarn , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?. I also kin other charaters like eren and koga .
       
 <p align="center">
 lwk gonna rework the info i had here might take some time ig. If you want u can add my discord js lmk before hand idm <3
@@ -28,7 +28,7 @@ lwk gonna rework the info i had here might take some time ig. If you want u can 
 but basic dni guys yk how it is also if ur under 13 and int with dont say weird shit same thing if ur over 19 dont say weird shit without sayign its a joke i can take jokes BUT ATLEAST TELL ME IT IS!
 
 <p align="center">
-Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see me in obey me cos I WS FORCED OK I DON TPLAY OBEY ME!! but yk the characters. I also like soul EATER AND BLEACH my goat. I also like aot.
+Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see me in obey me cos I WS FORCED OK I DON TPLAY OBEY ME!! but yk the characters. I also like soul EATER AND BLEACH my goat. I also like aot HANGE MY LOVE i miss you. Wuthering waves i recently js bck into it so im not that far in the story anymore and i have forgotten most of the lore so bare with me okay. and i dont have much charaters since i quit after roccia had came out.
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/d91430d0-ccdb-4399-8d2b-8926d456503d" />
 <p align="center">
