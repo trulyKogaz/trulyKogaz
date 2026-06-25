@@ -29,6 +29,7 @@ but basic dni guys yk how it is also if ur under 13 and int with dont say weird 
 
 <p align="center">
 Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see me in obey me cos I WS FORCED OK I DON TPLAY OBEY ME!! but yk the characters. I also like soul EATER AND BLEACH my goat. I also like aot HANGE MY LOVE i miss you. Wuthering waves i recently js bck into it so im not that far in the story anymore and i have forgotten most of the lore so bare with me okay. and i dont have much charaters since i quit after roccia had came out i love her sm.
+
  
   <p align="center">
 <img width="1120" height="350" alt="image" src="https://github.com/user-attachments/assets/d91430d0-ccdb-4399-8d2b-8926d456503d" />
