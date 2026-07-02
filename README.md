@@ -22,7 +22,7 @@ whisper or js int iwth me
    Spirit Albarn , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?. I also kin other charaters like eren and koga .
       
 <p align="center">
-lwk gonna rework the info i had here might take some time ig. If you want u can add my discord js lmk before hand idm <3
+lwk gonna rework the info i had here might take some time ig. you can add my discord im chill about it and guys if u want to match trust trust IM ALWAYS OPEN GUYS PLS FUHUDNG anyways my discord : kogazblunt
 
 <p align="center">
 but basic dni guys yk how it is also if ur under 13 and int with dont say weird shit same thing if ur over 19 dont say weird shit without sayign its a joke i can take jokes BUT ATLEAST TELL ME IT IS!
