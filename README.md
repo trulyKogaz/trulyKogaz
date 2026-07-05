@@ -34,6 +34,6 @@ Games/fandoms: i am the enstars fein yeah i play on jp and eng sever. if u see m
 <img width="360" height="494" alt="image" src="https://github.com/user-attachments/assets/7bd2b882-ff75-4cbf-9fda-9a22a5ed688c" /> 
  <source media="(prefers-color-scheme: dark)" srcset="https://yourlink.com">
   <source media="(prefers-color-scheme: light)" srcset="https://yourlink.com">
-  <img alt="Your Image Description" src="https://yourlink.com">
+
 
 
