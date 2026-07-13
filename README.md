@@ -15,7 +15,7 @@ whisper or js int iwth me
   c+h is chill so feel free.
   
   <p align="center">
-  dnc or inspo off me its so much to deal with and ughhh. 
+  dnc or inspo off me its so much to deal with and ughhh. also guys im not muted its js my names are tagged they been tagged for about 3years now and THEY WONT UNTAG ME.
   
    <p align="center">
    Spirit Albarn , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?. I also kin other charaters like eren and koga .
