@@ -18,7 +18,7 @@ whisper or js int iwth me
   dnc or inspo off me its so much to deal with and ughhh. also guys im not muted its js my names are tagged they been tagged for about 3years now and THEY WONT UNTAG ME.
   
    <p align="center">
-   Spirit Albarn , Justin Law kin forever and ever and EVER OKA? WE GOT THAT OK?. I also kin other charaters like eren and koga .
+   i love koga oogami ok. LOVING KOGA ISNT A THING ITS A JOB I SHOWER HIM IN LOVE I'D DO ANYTHING FOR KOGA . I LOVE HIM HES MY LOVE AT FIRST SIGHT I LOVE KOGA HES SO CUTE AND PREETY AND EVERYTHING I LOVE LOVE LOVE HIM I WOULD DIE FOR KOGA I WOULD END THE WORLD FOR KOGA ANYTHING FOR KOGA 😭👌 am js a sane koga lover ok i love him so so much its not me if koga isnt mentioned at least every sec in a day... same with jun...i love junn i love both of themm...if they arent mentioned than im dead and that person isnt me..its AN IMPOSTER I WOULD DIE FOR BOTH OF THEM AND IF THEY ARENT MENTIONED ANY TIME U TALK TO ME... THAN IT ISNT ME.....OK..ok hi goodnight
       
 <p align="center">
 lwk gonna rework the info i had here might take some time ig. you can add my discord im chill about it!discord : kogazblunt
