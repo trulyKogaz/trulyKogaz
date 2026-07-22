@@ -6,7 +6,7 @@
 CREDIT TO MOYA FOR MAKE IT OR ME
 
 <p align="center">
-Hispanic jaja
+Hispanic, also i use the name yari so please call me by that or yar 
 
 <p align="center">
 whisper or js int iwth me
